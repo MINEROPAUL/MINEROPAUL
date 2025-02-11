@@ -6,4 +6,4 @@
 - ⚡ Am I weird?
 
 
-Am a ✨ special ✨ Boy 
+Am a ✨ special ✨ GAY
