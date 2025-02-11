@@ -6,4 +6,4 @@
 - ⚡ Am I weird?
 
 
-Am a ✨ special ✨ GAY
+Am a ✨ special ✨
